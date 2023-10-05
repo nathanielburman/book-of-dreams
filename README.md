@@ -19,3 +19,15 @@ Stormie,
 My god! that is so great! you had a dream!!!! AHHHHHH Im so excited for you!!!!! yeah! thats great. a mountain of clothing that you havent seen since childhood! i love it. Then the squirrel!!!! hehehehehehee thats so funny! it got megan. :D then i called while you were writing me!! I LOVE YOU! okay. i got to go cause im gonna call you in a second. I LOVE YOU. KISS KISS KISS KISS KISS KISS LOVE!
 
 Nathaniel
+
+
+
+
+
+My brother had a nightmare that that evil old ugly Black Democrat racist who is a senator in America, 
+
+was chasing him through the street with her goons. And they were big goons chasing after him.
+
+She caught him and showed him a bloody syringe needle.
+
+He thought he escaped from her in his dream.
